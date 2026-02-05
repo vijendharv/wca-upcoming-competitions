@@ -1,0 +1,1 @@
+# wca-upcoming-competitions
